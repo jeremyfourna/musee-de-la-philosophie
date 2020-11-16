@@ -1,1 +1,0 @@
-# Musée de la Philosophie
