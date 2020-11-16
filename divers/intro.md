@@ -1,0 +1,1 @@
+Philosophie signifie littéralement « amour de la sagesse », est une démarche de réflexion critique et de questionnement sur le monde, la connaissance, et l’existence humaine. Elle existe depuis l’Antiquité en Occident et en Orient, à travers la figure du philosophe, non seulement en tant qu’activité rationnelle mais aussi comme mode de vie.
